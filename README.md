@@ -21,7 +21,7 @@
 
 </div>
 
-Pakistan's living heritage — the stories told around fires, in homes, at festivals — are disappearing. As languages evolve and oral traditions fade, we use technology to preserve, celebrate, and reimagine these narratives — ensuring every community's voice remains part of our shared future.
+Pakistan's living heritage — the stories told around fires, in homes, at festivals — are disappearing. As languages evolve and oral traditions fade, we use technology to preserve, celebrate, and reimagine these narratives — ensuring every community's voice remains part of ourshared future.
 
 > *"Stories are the DNA of a civilization. We are its engineers."*
 
